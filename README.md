@@ -10,3 +10,8 @@
 ![FDM](https://github.com/user-attachments/assets/a7174c38-44c6-4561-9366-a1a7b149ae69)
 # Wedserver Control
 ![image](https://github.com/user-attachments/assets/78708d7a-c3b1-410a-9aec-87e1086d3f0f)
+# VIDEO DEMO
+
+
+https://github.com/user-attachments/assets/aa776dc8-f417-4b14-9791-625874ebde48
+
